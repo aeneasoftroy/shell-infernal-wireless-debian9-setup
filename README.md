@@ -10,4 +10,4 @@ remember to look at the instructions on the end of the screen.
 see the script in action on youtube:
 https://www.youtube.com/watch?v=rdfgpE6_4cg
 
-                                     - Steffan 
+                                     - Aeneas of Troy 
